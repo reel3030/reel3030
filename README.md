@@ -1,3 +1,3 @@
 ## Hi 👋
 
-I am Designer & 
+I am Designer & Gamer!
