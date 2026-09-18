@@ -1,5 +1,3 @@
 ## Hi 👋
 
-たまにデザインしたり。<br>
-サイトを作ったりしてます。<br>
-よくLinux使ってたり。
+I am Designer & Gamer!
